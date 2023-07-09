@@ -1,0 +1,2 @@
+# Firmansyah
+Menerima informasi apapun 
